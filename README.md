@@ -1,4 +1,4 @@
-# simplydonya
+# Julie Vejar Richter
 
 ## babygirl
 
